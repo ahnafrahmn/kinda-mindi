@@ -14,7 +14,7 @@ In the afternoon, we had outdoor playtime. The children ran around, climbed, and
 Overall, today was filled with new experiences and small achievements. At this age, children are learning through play, exploration, and interaction. Watching them grow and develop is truly rewarding.
 
 
-=======================================================================
+
 
 
 # Daily Journal: Observing Children’s Growth and Development
