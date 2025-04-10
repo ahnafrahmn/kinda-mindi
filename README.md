@@ -1,5 +1,5 @@
 
-#Daily Journal – 11th April 2025
+# Daily Journal – 11th April 2025
 
 Today began with the warmth of a bright, sparkling sun, even though the winter chill was in the air. The children were very happy to enjoy the sunny weather. They had a wonderful time playing and learning together outdoors.
 
