@@ -1,3 +1,22 @@
+# Daily Report : 6th May
+
+Observation Report – Social Development of Amelia
+
+Over the past few weeks, I have been observing Amelia’s behavior and social interactions during playtime and group activities. I am pleased to note a positive change in her social development.
+
+At the beginning of my observation, Amelia appeared to be more reserved. She preferred to play alone and did not often engage with other children. She seemed to enjoy individual activities such as drawing or playing with puzzles by herself. Although she was always polite and well-behaved, she kept a certain distance from her peers.
+
+Recently, however, I have noticed a significant improvement. Amelia has started showing interest in group play. She now joins in activities such as building blocks, pretend play, and outdoor games with other children. She is also beginning to initiate conversations and share toys willingly. This shows that she is developing trust and building friendships.
+
+During one session, I observed Amelia playing “house” with two other girls. She took turns, shared roles, and even comforted another child who seemed upset. Her facial expressions and body language reflected happiness and a sense of belonging. She smiled, made eye contact, and responded positively to her peers.
+
+It is clear that Amelia is gaining confidence in her social skills. She is learning how to communicate, share, and work cooperatively with others. These are important milestones in early childhood development.
+
+Overall, I am very pleased with Amelia’s progress. With continued support and encouragement, I believe she will continue to grow socially and emotionally. Her newfound interest in group play is a wonderful sign of her developing social awareness and readiness to build strong relationships with others.
+
+
+============================================================================================================================================================
+
 
 # Daily Journal – 11th April 2025
 
