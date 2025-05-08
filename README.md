@@ -1,3 +1,23 @@
+⸻
+
+# Observation Report – Focus Child: Ratu
+
+Ratu is a bright and curious child who has recently shown improvement in his concentration and focus during playtime. In the past, Ratu often moved quickly from one activity to another and found it difficult to stay with one task for a long period. However, over the past few weeks, there has been a noticeable change in his behaviour.
+
+Yesterday, Ratu showed great interest in playing with a ball. He spent a long time kicking, throwing, and catching it with his friends. He seemed to really enjoy the activity and stayed focused without getting distracted. After that, he went to the sandpit area, where he used different tools and containers to dig, fill, and pour sand. He worked on his own little track in the sand, which kept him busy for a good amount of time.
+
+Later in the day, Ratu joined the construction area and played with Lego blocks. He tried to build something by stacking the blocks in different ways. Although he needed some support, he showed patience and problem-solving skills. He didn’t give up easily and was proud of what he built.
+
+It is very encouraging to see Ratu’s improvement in concentration. He is beginning to stay with activities longer and seems more engaged in his play. He is also developing his fine motor skills and creativity through hands-on experiences. Ratu is learning to work independently as well as with peers.
+
+We will continue to support Ratu by offering interesting and age-appropriate activities that encourage focus and involvement. With continued guidance and encouragement, we believe Ratu will keep making progress in his learning and development.
+
+
+
+
+
+
+
 # Daily Report : 6th May
 
 Observation Report – Social Development of Amelia
