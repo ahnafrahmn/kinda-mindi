@@ -1,5 +1,26 @@
 ⸻
 
+# Observation Jotting – Ahmed
+
+When Ahmed first joined the centre, he appeared shy and uncomfortable in the new environment. He often cried during drop-off and found it difficult to settle into the group. He was hesitant to interact with educators and preferred to stay alone. It was clear that he needed time and support to feel safe and secure in his new surroundings.
+
+Over time, with gentle encouragement and consistent support from educators, Ahmed started to feel more comfortable. We noticed that he slowly began to explore the room and observe other children at play. He responded well to calm and caring voices, and his crying gradually reduced. Now, Ahmed has become more confident and settled.
+
+Currently, Ahmed enjoys playing with his peers and takes part in group activities with excitement. He especially loves playing in the tunnel with his friends. He crawls through it with joy and often laughs and smiles while doing so. He also enjoys playing with toy cars, pushing them along the mat and sharing them with his peers. Ahmed shows good social development as he takes turns and shows interest in what others are doing.
+
+Another favourite activity for Ahmed is playing with the sand and pretend pets in the outdoor area. He uses small tools to dig in the sand and places the toy pets inside, pretending to care for them. He often talks to his friends during this play and shows imagination in his actions.
+
+It is pleasing to see how much Ahmed has grown since he started. He now shows a strong sense of belonging and enjoys being part of the group. His social skills are developing well, and he is building positive relationships with both educators and peers.
+
+We will continue to support Ahmed’s confidence and encourage him to express his feelings and ideas during play. His progress is a wonderful reminder of how children can flourish with care, patience, and a safe environment.
+
+
+
+
+
+
+⸻
+
 # Observation Report – Focus Child: Ratu
 
 Ratu is a bright and curious child who has recently shown improvement in his concentration and focus during playtime. In the past, Ratu often moved quickly from one activity to another and found it difficult to stay with one task for a long period. However, over the past few weeks, there has been a noticeable change in his behaviour.
