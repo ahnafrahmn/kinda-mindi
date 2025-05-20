@@ -1,3 +1,26 @@
+-------
+
+# Daily Reflection – 21/5/25
+
+Today was a rainy day, so we stayed warm and cozy indoors. Although we couldn’t play outside, the children had a wonderful time engaging in a variety of fun and creative activities throughout the day.
+
+In the morning, the toddlers enjoyed painting at the art table. They explored colours with brushes and fingers, making beautiful marks and patterns on paper. Some children chose to play in the kitchen corner, where they pretended to cook food, pour tea, and serve their friends with big smiles and kind words.
+
+Our car station and block area were very popular too. The children built tall towers, long roads, and pushed cars around, showing great teamwork and imagination. Playdough was another favourite activity today. Little hands squeezed, rolled, and shaped the dough into food, animals, and other fun creations. It was a great opportunity to strengthen fine motor skills while having fun.
+
+We also had a lovely music and movement session. The toddlers sang familiar songs, clapped their hands, and danced to the rhythm. Everyone was full of energy and joy, even though the rain was falling outside.
+
+The children enjoyed morning tea, a nourishing lunch, and a calm evening tea time together. They showed good manners and growing independence during mealtimes. After lunch, the toddlers had a restful nap. The room was quiet and peaceful, giving them time to relax and recharge.
+
+Overall, it was a busy, creative, and happy day indoors. Even though we couldn’t go outside due to the weather, the children stayed engaged, curious, and cheerful. They continue to build strong social skills, imagination, and confidence through their play and daily routines.
+
+We look forward to more fun together tomorrow – rain or shine!
+
+
+
+
+
+
 ⸻
 
 # Observation Jotting – Ahmed
